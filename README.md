@@ -1,1 +1,1 @@
-Putting RISK onto the blockchain
+Adding more RISK onto the blockchain
